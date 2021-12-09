@@ -1,2 +1,0 @@
-# gongsaero.github.io
-Gongsaero
